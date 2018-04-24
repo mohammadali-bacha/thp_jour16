@@ -7,7 +7,7 @@ Nous n'avons pas tout reussi a faire, mon programme ne marche pas, désolé :cry
 
 ## La Team :heart:
 
-**_ Hugo, David & Odyssey _**
+**_ Hugo, David & Odyssey & Moi :)_**
 
 ## Construit avec :
 
